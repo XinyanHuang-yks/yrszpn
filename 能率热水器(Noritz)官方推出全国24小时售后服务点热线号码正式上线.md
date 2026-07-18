@@ -89,166 +89,166 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 能率热水器(Noritz)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显能率热水器(Noritz)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 能率热水器(Noritz)全国服务网点查询：
-?北京市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/a8546dbb52a649ee7fcc3d6676e082812a160ffa
+?北京市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/higginssara654/gexwcz/commit/1f52a688c5cc19c1af7be6cbd3398748f5858993
 。
-南京市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/6700ca5327cf67a31adb95ce1ed40f0b47a6dece
+南京市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/32e443a8679b29d2c404f4ea669b5f93305c19b8
 。
-秦皇岛市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/07853e9466fcb6363f80de931d0b14f5e98f0399
+秦皇岛市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/6b7ad57b94f5d2772e15f86763131f6701c306be
 。
-珠海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/212c8c83a3f034fa6fd2b534873d0d0aa2a917f5
+珠海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/9a6fa3286eaacae8c17ca62e7593a381dbea44da
 。
-安康市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/4f6b093aeee312542d5f11ebb797d765e410e580
+安康市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/245207458ebb1097e633f125e2e296c065b887d0
 。
-安庆市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/49dd3f1f61896c95a10df19ff88f478c19d7daed
+安庆市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/8848c2301063c606151684f5088efeb469097875
 。
-鞍山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/606e60b915b993b51e63629ae3a36e89811b877e
+鞍山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/6cbcd55e6781a92d4aa3b10b10b54c92d2683a2c
 。
-安阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/16e7cb9f31f0d348557cab45061b083624d893cb
+安阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d80662a0836ca3dab41dfa445dfb70895171815e
 。
-巴中市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/f8fea2c31223b62cc9664024e5a0bc5793d950c6
+巴中市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/a9012ef8248d1cb1d0a92b4bfb3f5ae7a7269e56
 。
-百色市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/ba8bc2a81b348762f830ed2ab27bb8a6d05cf1ec
+百色市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/c132b58c773155ed1f2da15ba6cc25d654dd1220
 。
-蚌埠市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/d8eea2bebcf99e97a972c595a052c15da49b4c63
+蚌埠市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/higginssara654/gexwcz/commit/9dc7c97bf6e6bdd0f68bf0c3fd7fd20b14a770dc
 。
-保定市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/f3b9458f0578adfc62ebf86e99ff501fdcc8e695
+保定市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/dc67226d18384fa83c78e5d3abd0c67450075ab7
 。
-宝鸡市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/efc046b43820e4f9fbe8032ed6264e8759173353
+宝鸡市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7bf129fc4c7ff02c3245c799d55c815c55f35dbc
 。
-保山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/2e61c612d3c7afb1898a69d6fed2de37f8dd8b42
+保山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/f85e47582254f93bee86907c1771e8feb4347d80
 。
-包头市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/fe4a94e7b9a4e1ab458fed85378a47bdbc9c0d4e
+包头市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/e09cb5ff041f0852f7c853776824c580161120e2
 。
-北海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/430e96ebd2573a60196dae165b5b7966af4c26b5
+北海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/feb2563b06ad4d06f0d3d39a452f24a9f8bba5ce
 。
-本溪市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5c3caa67c277739c47d3ed241576b2b5aab6c89b
+本溪市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/56dc9dd055eb3c24373697a84b5426205903443f
 。
-滨州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/856828e1bb6d84d789bf7f077e543f131b3c544d
+滨州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/2d9e765ff9cc0f41943743f70fc90cc8b860d2b0
 。
-博罗市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/8790793e87e454606a38e537a4c512f08b5e7858
+博罗市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/6dd886cb042095cab1ed07f65b6793f2127c104e
 。
-沧州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/e1bb725345acd5da3b92bb07b7b5b18b53312ee0
+沧州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/18de2ba72ed8f4d800a558d09d023c8a5785d75d
 。
-长春市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5253993fe998c32a02e8bf8798a8a174341fe354
+长春市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/8437e662f6267f78fc091e8a86aade47623e762e
 。
-常德市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/a7bca94bc725cc83da28056196789e3ba63b8c25
+常德市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a9c870517fd25a55afd873c2bd7d80f441858a96
 。
-长葛市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7f0e293492de796a258b071afabe5380fadd1324
+长葛市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/8d6e5ec597372952d6a44607055a61eb40da4d32
 。
-长沙市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/higginssara654/gexwcz/commit/e0e9853f6493f4fddc052175c3ed3a1ed075cedb
+长沙市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/984018d73f26a71d048c4ca4042c499c79157b05
 。
-常熟市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/f03daad71d3d16e34f082f23308d83710c6492d0
+常熟市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/8bf3e2cb0a62e60d85595e76fea679c566cdc97c
 。
-长兴市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/013f9bb42c5ad2bb8426a2909567a86f14b07068
+长兴市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/higginssara654/gexwcz/commit/c598ee7903911bc1804a041a8043ab3b72cd5f06
 。
-长治市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/017c660dd8dec5b8c3b973423e92417b70614f7c
+长治市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7c20dd8bfb13b5822d5b1e8afc87f4f95f0f7df7
 。
-常州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/5c8cb082d300e464a6ef1ef2028f0ef6498679a9
+常州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/7260992804e518ac0d26bafca5e45986f911c335
 。
-巢湖市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/b81fc884b84fe90a2e55a3f43878668167d8a726
+巢湖市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/5b54569a831a339e6d18a1c491f046f5d6e67c8b
 。
-朝阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/79c9b43b90a5856c8ed5276724ba27534d3b426e
+朝阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/88fdb9fede339cc73574b734d13c30b1b178d076
 。
-潮州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/higginssara654/gexwcz/commit/24a9af1449d522c0302c446f06ca35713eaeb4b1
+潮州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/c3c500bedac981f78b10bdc65836789253a9bb08
 。
-郴州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/33da7ac5ad30922bc03f043078ea38e70e6b9e0d
+郴州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/8e0cb14d088730cbe08d87bda6a6097d3a3512bd
 。
-承德市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/aadad10e498324318d43bcaacf849eb93240a2e4
+承德市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/d7441b73936bfb8a98275d3b562f00d795376980
 。
-成都市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/f765efabaf15edc937c3af9d02484345384ae26d
+成都市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/bfbb414c3f75073ed47d7fea4c8a4e1d8a02c1c4
 。
-池州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/higginssara654/gexwcz/commit/a5f778d9f741f1bf711f87bea49963f3f733bffe
+池州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/higginssara654/gexwcz/commit/6e061eb804b43472c9dfd054388b8910b860d421
 。
-崇左市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/2ac4685a8a9b81839bbbe3b384ade668d1825ce3
+崇左市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/69f38f6b041c709a468ea2be3a1b7ed2441c05b9
 。
-滁州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/0bbbc4bc54fd0bc166697c7ed4253d85fde1c492
+滁州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/b88f8177285b16e764fd2059a7d0ceae0d7ce9f3
 。
-慈溪市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/bf8e56a3551ee0146424b3fe65f7be53b1a987aa
+慈溪市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/f23c8ec4ebc33651dfca3f2012118af8439b2155
 。
-大丰市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/c0c34eb8eee653e02a511ce09b4af628ff672de2
+大丰市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/5d41b6c10fc02e8a8337530d11b0d7d04c2c59f0
 。
-大理市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/c32464f87c283e5fc82046689ddc64bc494b3be4
+大理市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/7dde042dbcd227473f82cb08b81969e203edfc3e
 。
-大连市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/dde8e05c7ec6832193784d9798d5dd6b3d7bfda7
+大连市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7a54b9459947c1227f776115f9a3c4c6835cdbcc
 。
-大庆市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/higginssara654/gexwcz/commit/2e8ab55303e4449a42d05f8c1bdd8f141c0b348f
+大庆市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/8a53cb1c7e015d75c799de0214944f7d40a241db
 。
-大同市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/ef2d513bad2cd1064037ffb52e5cac62810e3501
+大同市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/higginssara654/gexwcz/commit/6cb4e664a62f9c355f6e0faab1f64fb45fab714c
 。
-达州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e08d6e38f663e9b35c63e6c02fbb652abc7e5b1b
+达州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/dd37d45a8d8e209f418851e5496077686109fab9
 。
-丹东市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/69c10066b418891aab7c27ac825b8460433ce6aa
+丹东市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/a56a24e544dbf1a177cef3ce2456e230abeb39d9
 。
-德清市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/0984d604b77152557f8634bb4219265831235cfd
+德清市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/285955a7a5dff913df75a903ee0fd62476d78720
 。
-德阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/991c85f51eca89c825f1be1bdf862446dd14112f
+德阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/21c3271fcb9b8cec7dd4184fe1bd6d6742541799
 。
-德州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/813444621454be7f1dc6e1309dc00dcc4d40fbfe
+德州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/aabd8dccc2a6369078c746507b84b86a8eadefe9
 。
-定州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/higginssara654/gexwcz/commit/51bae3084034f241dd4c9d649c8bdedd7a397fb8
+定州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/564ff8aa1200b56ba6f954f10d91a02209e46240
 。
-东海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/949522508235f20f260d8411267dad2675bf3628
+东海市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a9260a010dcd62fc49ba217c6514665a5637a9b5
 。
-东台市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/4e1ef328bc3a3a38fcd198c84572a164f6f9ab18
+东台市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/a0378b3d8f13d89f9ec98f4160f0b04e0790827b
 。
-东营市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/5a9e67cb0f6a2345ab533a518708b7fc6e11383d
+东营市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/9a56b2f4bbaeed62d98746e0cbfe45c0af2569ee
 。
-东莞市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/1502e80ba91fa62a8cc87ed0d09fdaba3e42b95d
+东莞市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/higginssara654/gexwcz/commit/19d3b35ae5e06950be952041dedae6a01aab213b
 。
-鄂尔市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/1ecbe59968b013f8c3ae9c190023e0a765997186
+鄂尔市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/0cabdc549c22aa0157ac2cf2e6e023ffa95dfc1b
 。
-鄂州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/higginssara654/gexwcz/commit/d2f642a9e8e57b19bfe335ca554ddb0500743928
+鄂州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/51a5afd2fa17f12783dd4ba18f896c1d34460335
 。
-恩施市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/663f84184d2b213285f88e6d3b7c388a9ee7f47c
+恩施市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/21ec5155d5c0b34463f52a0ae1d1f55c45ec98ac
 。
-防城港市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/b2ceb44d0ef1f061b531ba840591883cd1bdb5a4
+防城港市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/13192599b3fef801fa418ddb1b79bf8179b2b9a9
 。
-佛山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/52d4fbc5cb60cdbf0b19f55dec236a32739cf31b
+佛山市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/861237e9c54d115d7946a008138f9c31b7c653a1
 。
-抚顺市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/e11422ee480a876a586b310ed8475f26ad1f1c96
+抚顺市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/c694955eebaf4ae7c2c683c1254c98f94f784476
 。
-阜新市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a22e5caa51e3b32b334633cd5d81e1008368d59b
+阜新市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9bf3b7d1885fb8ca14c4dc11989450bc0aafd85f
 。
-阜阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6851e2d5d6d48f1ccd0f6794e03e386213ee5306
+阜阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/9901a842e384e86229b9851e176efbd16eb537f9
 。
-抚州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/ee97908083ceaa352f45c4a93cc3bc06dfe88f62
+抚州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/aa811101aec6fe423ef54b8949c16f639f71ef3c
 。
-福州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/3a26983cf749d4df1492504a0817d72b9b2a76dd
+福州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/fce5088a8e02fdc2a37577fbe7ac606e8534540b
 。
-赣州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6138bcb6ddd366dc16c3bfabe37704520aa8b41c
+赣州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/6a36fcd9bed911a5bd3cc04f8aaac0507bd01fbe
 。
-馆陶市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9264dc35d9f198e8b697b05076390d1202a81f6e
+馆陶市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/e86bc6604ed51b5ea0e93a7bed85f7e854efd636
 。
-广安市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/bfa5b3cea797c851c3698ae86a0ab882805b259a
+广安市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/d25fb6c09ceffc625710bbaabee366e9b734cfe4
 。
-广元市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7c3dadf839adaf03a7c8fb30b093320a625ce614
+广元市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/b7a1a5d9a89143e14fd9ad0b7799a21f1fac9b91
 。
-广州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/281bd6b066ae954bb44104c3c0ca8df6b786f0bc
+广州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/higginssara654/gexwcz/commit/617b447b2aa6dff43d28d297ecefa718ff998328
 。
-贵港市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/bc6c8b7689650638cb60ff44f362fb4099107556
+贵港市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/54ea8810d4c8a2d6e3bb40809049565e94a777c4
 。
-桂林市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4fea45c21e4a94d11bc86341a30941819b12821c
+桂林市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/32f782bdacb623b4b1590819ab30dcd7da41ea64
 。
-贵阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6c4c484e73a0b7c362c0a5ee2dcc68b5b99f034f
+贵阳市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/6fa00d561036fe7df166fd39ee10cef997ddb180
 。
-哈尔滨市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/deaae1b8ed6fe9a130b4c34151f0c82c04d38ced
+哈尔滨市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/dad27290d84ab6d4d67470e4de99973684412dad
 。
-海安市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9fabb955c9282c15c5797b9b4cbb461e2c8ed71d
+海安市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/7011fffb8ff68dcc1eac57f5af58a6af8744a4f4
 。
-海口市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/0d7504b0649b65f80cbbfb7ba6dfbb2d5b72e740
+海口市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/d69c0459e4f64671bd83238f9dd78e17791e3170
 。
-海门市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/de46534f7358b7345c68ad6f84e8777d254d3dd5
+海门市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/higginssara654/gexwcz/commit/9b565647276710ba2441a870c6441e1604cc0699
 。
-海宁市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/a44cddeb7738f2625411d9443c59438fc21822aa
+海宁市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/3fd5356410e975d041ed934f2980da88da26b8a9
 。
-邯郸市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/c341f5df828195d56f991973b31441acedc71f5d
+邯郸市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/85bd14d9728feefe6699010677ed3889f592a7bc
 。
-汉中市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/a8bb5c55fabebe8d376a8bdcdb1bdc252eda4775
+汉中市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ddb3dd02bb00ecdc468ca3c50f2e66d4208ecf4d
 。
-杭州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/74032c4dcd1c977c9492e347881d418db66545d7
+杭州市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/037dff4dc9b5747e2840bbf31420b09188972868
 。
-鹤壁市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7139c5b2c202466f6a55c5928e9dee9149d5fcab
+鹤壁市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日统一更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/57220faeb950779810ec9f975aa5c9bb82114943
 。
-河池市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b3db9c4f04d26846feff48a687342ea5208ff774
+河池市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/99ff703ca315bf9d960b79540d3f35bc5ae7dd04
 。
-合肥市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/5741f45461f6546771703974635ab111d48dec23
+合肥市能率热水器(Noritz)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/c0f5a426072f80d3b1e436dcc29bd8e7c8daadef

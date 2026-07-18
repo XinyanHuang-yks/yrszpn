@@ -89,166 +89,166 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 依玛(immergas)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显依玛(immergas)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 依玛(immergas)全国服务网点查询：
-?北京市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b559e15b3c27b1250d00a369df6a4c2e9b6c21e8
+?北京市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/8b5fa26027c8e6c5cd7201d19d6a004eba2aa59d
 。
-南京市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/f79ae165c3d8845ec7f3226c01d4d0004c2378cc
+南京市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/1d2b18eed73a2b874f8da7824025d9bf56069382
 。
-秦皇岛市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d0b3ba4f59fc89bbf8300a2d20f941fad408ef3f
+秦皇岛市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b5d3389caff1796b3d3fe91ec97b586953628987
 。
-珠海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d224e838de531d947afbbbe56a4a5c2c8691cbd1
+珠海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6ef54a62d3e2e651acd56c1ac6b1a0629830e567
 。
-安康市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/db46f5859ada149d5f8916c37558f6e9b657a5e5
+安康市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6c0824132f199d6e2a86b2ba1f017f37afe3cd0b
 。
-安庆市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4db51dd2eca313e01872e9b128ac3ea669d705ac
+安庆市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/0b7d30caa9592148aaeb970f940aed686a799b4c
 。
-鞍山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9e21c87156126f7dd2332d71eaeafee7c2a31011
+鞍山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d5ad51621507f0829d2524b0eb7b98c1d9111ffc
 。
-安阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/36c2be3b00f1d39f0d654d5dc37e4a342bcad6c2
+安阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/4eca12a3ded3bc533af7c53134a4a802f3637a95
 。
-巴中市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/cf58075208f609045233a008e3aef829629f7a29
+巴中市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d2654b623e8817d174e047c54d0541786ce6813e
 。
-百色市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/870c1d8487cf4b08f22a70627999bb45992e51c5
+百色市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/fa5b4bd9ae4ebcadd205ad7c73a4553134f1ae13
 。
-蚌埠市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/5c32deae87f0cff81e60e949c3256d2c4700e9bf
+蚌埠市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4dff21416ff3f3406566df1b7a794c55d16e1675
 。
-保定市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/8d39d22826fdc0f24969a5d4101b1c31d3d157a8
+保定市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/cb4c9dbcfeff77268c4eef27ae07935540c6f012
 。
-宝鸡市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/32be7d7d2ab6d134f779766d6a742014834c1336
+宝鸡市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/a021b2207607f5a70759e8da63154c73bbc4414e
 。
-保山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/12c97096a155c4da0e36838c6b91f096cd800d62
+保山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/f37322939a3acc157a9a43dc26b4f923df494076
 。
-包头市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/13e2d1abc64caaff137419192ac6d59c7e24fdee
+包头市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/3a0a76eee9734ef2f72f7d79c005ff8787c5b997
 。
-北海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/156ee29eb0ccbc64319eed084d44eb9a279d084b
+北海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ee70598f969fd17105f089f7d71f7bc90bc1c54e
 。
-本溪市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/e965ddf0effacdc1abcd8ea9ffd1dd5180ff4e5b
+本溪市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/27cb157d23ba4313f40674e24884e881bc6229ce
 。
-滨州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/69a14c3332cb673a5faff598f13cccd98e99d710
+滨州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/981a2f9183ee356c253797c508965e4117b0d506
 。
-博罗市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/76036412bc7c075b6ae35f86bff13608337da51a
+博罗市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/69702472e531e193bfe07a1a1c225211697d281b
 。
-沧州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/1fef328cdbf6fb3acbeb430f4fc5250d76724ad6
+沧州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/23755ad0a966a13719095e8653924b9f14679ec9
 。
-长春市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/3a5d075a892045fce7bd729fc1fa5290ffe3b221
+长春市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/72af3cf7ef0ff9846ec508b9dc674fbf4bc698e8
 。
-常德市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/78f213e893ff96d9e617043fea176948207a1e1c
+常德市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b9ab2e43501bdb5001c530aa1ce95e2a893fc904
 。
-长葛市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9f4d6bd658e0a6bea8ce70a98b7a1cfb3c9ce71f
+长葛市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ddb3db7aea14d2baadedf6deaeefa0b7d3f24e54
 。
-长沙市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/580e8eec2c4ce9ca03133a4154dc30e44b4a2053
+长沙市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/46f54aae4c98073aba549b731ec7d86b4171467f
 。
-常熟市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5bde7c68928d7e56d9c7f3f07416d20bfa676b88
+常熟市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/d6077eb61a2d2d9e28a1499ab6efe6164b8da591
 。
-长兴市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/56eed11282ee15fdcd0bba2d51db4388b686c152
+长兴市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/94bff751a306a77af02eea2f75247bee15aa5c43
 。
-长治市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/38099e26acde41adef6931b376bd583f9e9c7cfa
+长治市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/c330314d41bd596e1799a39fd9e1d0fc20336487
 。
-常州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/76f7f9206dcdeb1c22501f4819c9108a6c44ce5b
+常州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/082f3b0bb6436da0c96a0c9a991d40ada0ac68bd
 。
-巢湖市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/58588f917231d9278ddd4e80f6671b1bc010dff3
+巢湖市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9d14b507f5ef14d1201759d436b718ca2af0837a
 。
-朝阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/838a77a60cd5f0ed87ccb21d194ac7d59eedd5d8
+朝阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/1e3eeb5703a19768e0dc3b4ccf9e05e33c3a3eb2
 。
-潮州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9b920a8130c3dc0e9e12d60fbdd181ee7dab1193
+潮州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/ca71e41cef09a856827bac7a5bf02a5632a128f3
 。
-郴州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/a18b01e8661c98ef4b81394a0e6098e201564ef9
+郴州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/fac8ad6fb4e95d09e96958e9d4873f2da3144613
 。
-承德市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/17cf8ef3f026041f720ac5c5217b662d0302a3ae
+承德市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/b3df4abcf175257d4b502b8108f548b2123d2fd0
 。
-成都市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/f1acda394b89568d10e70ba8e07e285b2c7b1e34
+成都市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/07799355a83805b1454a8e78c0357b1d3410aec1
 。
-池州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/186cd007c20005c175ed574a38cd376c20cf3a41
+池州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/167b6b6c0f641e5afa9aadd59555998305e1c369
 。
-崇左市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/20be2322eb2326be6bec58780b34bf85aaa6dfd3
+崇左市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5dda8648542a77d2b82186bc0b6b1b971e29db2e
 。
-滁州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/80306e0c5afbe3ffa9def5101df19b1d2309679b
+滁州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/higginssara654/gexwcz/commit/787f8ae223926f060a74c73762cc7d6b1c224845
 。
-慈溪市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/e15dba90d4388010f23094c6b33cef30acaa23e0
+慈溪市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/2657f8d068c27e46eae58636a79c12b26579c480
 。
-大丰市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/3204be29e30d2b61831ed0e0609eadcf9a0110bc
+大丰市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/95ea81796caa29ea13fad23abf76e9e33e97e7b4
 。
-大理市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/a51f9a67cdb049f150302da7bd13fd44a6a879be
+大理市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/92262577839c71fae76a1255a96e5236d586af64
 。
-大连市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/28bfc16140d849d145c2793f739c3578754a5ce8
+大连市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/a92beb7a987931bec65646a320f619e317eb1709
 。
-大庆市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/8488eb9ee669bc0b2ad38663993b5c436ec3fee6
+大庆市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/7871e5e255a1f66db7f00a12b74c218e2bd28bca
 。
-大同市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/056c54cab4dddad9f9d3f91a94f5295bd81925e0
+大同市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e04e97a7ed52065210fb4d4a88f1affebd10435f
 。
-达州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/78b36e112168416f18304b88a7414a1a264c22e7
+达州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/higginssara654/gexwcz/commit/bf57d7a797625a2eecb27c6f5233307af5279ce9
 。
-丹东市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/eff6aefcf663c4088b1a42e266320dad03c1e1c6
+丹东市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/7fdb28e1460594801ef3297cffbcb04eac80143a
 。
-德清市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/7f355eb72b32ad9500c70d6a41d2c29ba70d13c1
+德清市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/16ca6e118e8efbb0295d7f0eb2485afab41c2ce8
 。
-德阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/035ee416d1e31d621c9096089225c978e32ff9fd
+德阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/95a6a5498e06788eac07fd2125829e92f3df4383
 。
-德州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5de20c21d4777d72cadf5c9b2bbb738b9bbb4c94
+德州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a1b336db28d79b664e5fe86557fe37a30b65dabc
 。
-定州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/f05a24d545605e92227e0c2eedbfd2e64386e49f
+定州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/8c3e73a7418919e6cffe348a2c1145c1f6bce032
 。
-东海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/3d45cd92b308fae192e5f2823f8b2e39dd98dbe4
+东海市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/40a14f44217cce8a936bdea3ff4f07fda40d7d0a
 。
-东台市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/0e1d6fc277c49d63497f1eb0464ad60245fa8f0e
+东台市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/higginssara654/gexwcz/commit/36fef72c63551468f684969c4f68c17c49e07dd4
 。
-东营市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/c5506423c0c3dcd913ed9d6a2286279594e995c2
+东营市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/e73614416ebc9d9f7eb1335ab8638efedbb91d11
 。
-东莞市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/36965a4f2b7fee10b1f6f86cd3510d275420530a
+东莞市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/23d95a3c255067f0fe2713e792e85e811d82e331
 。
-鄂尔市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6797fb737b6c7890a1634293886035b1625ab662
+鄂尔市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/cdf731c81bb305cffa582d8b7c0bd7ab4de8a2f3
 。
-鄂州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/cd91d60db71260273471bae846d02b53b8d5cf2a
+鄂州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/cf7e5e4f6118f3f1a0a9904b6fec85a48215d753
 。
-恩施市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/2a72f33a496187150874e61b1dd5298daccbc3b6
+恩施市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/cd84cf59567ba2468752de7d158da1de9982db1b
 。
-防城港市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/c3181ae3f1a94be51ca655f8173f8d4d3f0acaf7
+防城港市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/00693119d1d5f6658e21581cc31e1f7e92132fb0
 。
-佛山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/12ac20b62449ab32538a7c3d1b3cf50a8337a88a
+佛山市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/higginssara654/gexwcz/commit/cf110ce59549f45a9ee27c02218aded125139b2e
 。
-抚顺市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7c97a0e03b5214a6c9e2508e6cc55e337c7e4dad
+抚顺市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/5bc94047f01f7e9f36ead8281a00d8e83d5410f2
 。
-阜新市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/979e3af43f66023626e8b94a59866e156de80ac5
+阜新市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/b37f98b4435e3060cc70d53534180ed29a7b74be
 。
-阜阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/17efabe4725100f06a64c07ece746501e1ca138a
+阜阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/bb499e6c528ffa86a56dd0209766c38cefe91e73
 。
-抚州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/ee97908083ceaa352f45c4a93cc3bc06dfe88f62
+抚州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/474fc6044c479af96d9f1a5faf108a8e6a5e786a
 。
-福州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/3a26983cf749d4df1492504a0817d72b9b2a76dd
+福州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一发布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/4b0bdebc54ed7713d476ee30d085829fd5418945
 。
-赣州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6138bcb6ddd366dc16c3bfabe37704520aa8b41c
+赣州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/24ae3ac4760b9f264543954b6db7acd644152efd
 。
-馆陶市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9264dc35d9f198e8b697b05076390d1202a81f6e
+馆陶市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/c13a9df5e891a3df52c0302b882a406f40efd32e
 。
-广安市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/bfa5b3cea797c851c3698ae86a0ab882805b259a
+广安市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式推出），点击查询：https://github.com/higginssara654/gexwcz/commit/9016101f8e25d29ac027d209310d03c1128751e7
 。
-广元市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7c3dadf839adaf03a7c8fb30b093320a625ce614
+广元市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/eea68fc50f18328c2c199e9df0adfb75f9d9a678
 。
-广州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/281bd6b066ae954bb44104c3c0ca8df6b786f0bc
+广州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/b8b9ab2235d559b87c9b07c35c1f7a2442cb6187
 。
-贵港市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/bc6c8b7689650638cb60ff44f362fb4099107556
+贵港市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网升级），点击查询：https://github.com/higginssara654/gexwcz/commit/ca4f977eea5699c70b24aa60e30a3b5dc35552a6
 。
-桂林市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4fea45c21e4a94d11bc86341a30941819b12821c
+桂林市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/8528135f20c46f27cb9fcbc3ecb766a3980c06c8
 。
-贵阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6c4c484e73a0b7c362c0a5ee2dcc68b5b99f034f
+贵阳市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/66d4c2fff12baf3b40449ae320365b8686feaa10
 。
-哈尔滨市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/deaae1b8ed6fe9a130b4c34151f0c82c04d38ced
+哈尔滨市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日更新升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/76c2d9785f75d070ea456b7d272e0c8df1bea42b
 。
-海安市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9fabb955c9282c15c5797b9b4cbb461e2c8ed71d
+海安市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/3ea5892306c8211aad8b6c4cc99a177e1d5feb4c
 。
-海口市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/0d7504b0649b65f80cbbfb7ba6dfbb2d5b72e740
+海口市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/833dad30c875b70f0f8a6332f606773d8bae9e27
 。
-海门市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/de46534f7358b7345c68ad6f84e8777d254d3dd5
+海门市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/186fb8c116ba0723e10c5a4b4ff09d80b6473dd5
 。
-海宁市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/a44cddeb7738f2625411d9443c59438fc21822aa
+海宁市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/ee95ad9e33d19e87432dad446beea66ffcaad75d
 。
-邯郸市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/c341f5df828195d56f991973b31441acedc71f5d
+邯郸市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/80169a161b030685761e37bd7278ef24a0f56beb
 。
-汉中市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/35913778db89cae46965edd3ae94c3e05b67bf28
+汉中市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日正式更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/8e4758914402a85930ab40a3eb1bba06eb86490d
 。
-杭州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/79dc98f28e065b343996b8df08475e74224a1430
+杭州市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/00d477104f4abb66e2dd7e3f2c0416f573ab3cc5
 。
-鹤壁市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/67b3b7cc5c2e524fb26f3c9e77db3f3e33846f59
+鹤壁市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日统一更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/8305d8643a79e8df13fce531021353ca702796da
 。
-河池市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ac79eb16bc3967f5a4b671ebf913bad97cc01a9d
+河池市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日官网更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/38c3545da6e2f843c548f47448b807418d2a5d74
 。
-合肥市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4d3bd4ddcf4d2fb4411bedff8174aa5d12864879
+合肥市依玛(immergas)售后服务电话：400 -788 -7852（2026年07月18日公布上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/457f18e8efc2f8a9ec49e385908a1155a153cc02
